@@ -5,5 +5,3 @@
 - Anirudh Sharma finds the Community Classroom initiative really great!
 - That's great!
 - Kunal is a great Mentor.
-- I love programming
-- MAIN
